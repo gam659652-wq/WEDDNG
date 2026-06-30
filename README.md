@@ -1,1 +1,1 @@
-# WEDDNG
+# WEDDING
